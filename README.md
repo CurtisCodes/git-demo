@@ -2,5 +2,5 @@
 
 Lorem ipsum and what not.
 
-## NOT ipsum but still good
-and also more werds
+## Jus kiddin
+no but really
